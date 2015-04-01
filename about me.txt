@@ -1,0 +1,5 @@
+﻿My name is Sardo, a system administrator assistant of Nxtomo Games, which like writing and reading.
+
+I have other projects on github, such as S3Backuper and Capture For Plurk. 
+
+They are writing by node.js and python, which are my famous programming languages. These project are already completed, if you are interested, you can visit my github page to find them.
