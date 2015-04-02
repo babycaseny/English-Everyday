@@ -1,6 +1,6 @@
 English Everyday
 ----------------
 
-It is a practice for training english skill.
+It is a project for improving my english.
 
-In this practice, I will writing one article which have 150 words everyday, and put it on github. Everyone can watch my acticle at here, if you find any mistake here, please feel free to correct it in comment or issuse.
+In this project, I am going to write one article of 150 words everyday. Then put it on github. Everyone can read my acticle here. If you find any mistakes here, please feel free to correct them in comment or issuse.
