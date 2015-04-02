@@ -1,14 +1,14 @@
-A good communication skill will help you work more efficiently, as it can let you better understand your  colleague or situation and enables us to resolve differences. So, how to improve it? Writing.
+Good communication skills will help you work more efficiently, as it can let you understand the colleagues and  situations well. and enables us to resolve differences. How do we improve it? Writing.
 
-Writing is a good method for training the communication skill. It is because that you need to organize your thinking, then write it orderly. 
+Writing is a good way (search "method or way") to training the communication skills. It is because you need to organize your thinking, then write it orderly. 
 
-Moreover, if you want to write a good article, you should read more and think more too. After that, you will get more knwoledge, it is good for you too.
+Moreover, if you want to write a good article, you should read more and think more first. After that, you will be more knowledgeable, which is good for you too.
 
-Not matter what you write, it still be useful. For exmaple, You can share your view thorugh article, or write a story. After that, you will feel happy, and your communication skill will be improve.
+No matter what you write, it is still useful. For exmaple, you can share your views through articles, or stories. After that, you will feel happy, and your communication skills will be improved.
 
-That's why I writing fiction everyday -- not only let people happy, but also good for me.
+That's why I keep writing fictions everyday. It is not only let readers be happy, but also good for me.
 
-Although writing a article or fiction is not easy, I hope I can keep this habit forever.
+Although writing an article or fiction is not easy, I hope I can keep this habit forever.
 
-Let's writing together, shall we?
+Let's write together, shall we?
 
