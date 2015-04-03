@@ -1,6 +1,6 @@
-Good communication skills will help you work more efficiently, as it can let you understand the colleagues and  situations well. and enables us to resolve differences. How do we improve it? Writing.
+Good communication skills will help you work more efficiently, as it can let you understand the colleagues ,situations well and resolve differences more easyily.How do we improve it? Writing.
 
-Writing is a good way (search "method or way") to training the communication skills. It is because you need to organize your thinking, then write it orderly. 
+Writing is a good way  to training the communication skills. It is because you need to organize your thinking, then write it orderly. 
 
 Moreover, if you want to write a good article, you should read more and think more first. After that, you will be more knowledgeable, which is good for you too.
 
