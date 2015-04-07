@@ -6,9 +6,7 @@ In order to design a character, you should ask yourself two questions :
 
 2. What is the aims of the character in story?
 
-For example, when you are writing a horror story, you may need a character who can push the story forward by enter a haunted house. If the character is a coward, he/she will not go there. So you should design a character who are brave, otherwise the story will never go forward.
-
-Of course if you can give a reason to a coward, he/she may enter the haunted house too, such as forced by bully.
+For example, when you are writing a horror story, you may need a character who can push the story forward by enter a haunted house. If the character is a coward, he/she may not go there, and the story will not be move foward. So you should design a character who are brave, otherwise he/she should have a fair reason to enter the haunted house, such as forced by bully.
 
 Also the aims of character is important too. A character may kill some people in order to earn money, or begin an adventure in order to save his wife -- it is a power of character to action in the story, even if he/she may not finish the target at the end of story. 
 
